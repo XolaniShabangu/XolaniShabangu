@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @XolaniShabangu
-- 👀 I’m interested in everything tech
+- 👀 I’m interested in Coding, Gaming and Movies
 - 🌱 I’m currently learning Software development
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me: xolanishabangu97@gmail.com
